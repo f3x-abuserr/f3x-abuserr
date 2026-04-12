@@ -9,7 +9,7 @@ ${\color{#DFB1E1}\textsf{  my love }}$[ɱεφµσƭ](https://github.com/dragonpl
 
 <div align="center">
 
-${\color{#DCACD4}\textsf{ ɠαɳɠ }}$[jane / pr3ttypriincess](https://github.com/pr3ttypriincesss)
+${\color{#DCACD4}\textsf{ ɠαɳɠ }}$[7n / pr3ttypriincess](https://github.com/pr3ttypriincesss)
 
 #
 <div align="center">
