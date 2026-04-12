@@ -1,4 +1,13 @@
+<div align="center">
+  
+${\color{#DFB1E1}\textsf{  my love }}$[ɱεφµσƭ](https://github.com/dragonplays-forsaken)
+
+
 ![](https://github.com/f3x-abuserr/f3x-abuserr/blob/c746dfb90e39375818a4030fde91bd3b09abf98a/Untitled959_20260411220139.png)
+
+<div align="center">
+
+${\color{#DCACD4}\textsf{ ɠαɳɠ }}$[jane / pr3ttypriincess](https://github.com/pr3ttyprincesss)
 
 <!--
 **f3x-abuserr/f3x-abuserr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
